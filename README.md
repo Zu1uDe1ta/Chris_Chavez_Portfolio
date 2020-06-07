@@ -1,4 +1,4 @@
-![](IMG_FILES/BIG_DATA.png)
+![](https://github.com/Zu1uDe1ta/Chris_Chavez_Portfolio/blob/master/IMG_FILES%20/BIG_DATA.png)
 *### DATA IS OUR LIFE*  
 
 
